@@ -1,1 +1,1 @@
-# Nomek
+# My discord theme
